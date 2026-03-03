@@ -31,7 +31,7 @@ I like working close to the metal *and* close to the user — from infrastructur
 
 > **Not just an assistant. A companion.**
 
-🔗 Repository: *coming soon*
+🔗 Repository: *Private For Now, Public Soon~*
 
 ---
 
